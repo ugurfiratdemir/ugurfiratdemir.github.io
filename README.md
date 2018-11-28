@@ -1,1 +1,0 @@
-# ugurfiratdemir.github.io
